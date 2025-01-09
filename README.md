@@ -1,0 +1,1 @@
+# ffrty80.github.io
